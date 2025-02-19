@@ -1,2 +1,2 @@
 # sy-is-11
-# I love 📷 and 🎞️.
+# I love taking 📷 and 🎞️.
